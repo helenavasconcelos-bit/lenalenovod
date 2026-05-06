@@ -6,9 +6,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning codes
 - 👯 I’m looking to collaborate on projects
 - 💬 Ask me about anything, I will answer if interested
-- 📫 How to reach me: helenawegner123@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I'm a dumb person 
 
 
 <!--
